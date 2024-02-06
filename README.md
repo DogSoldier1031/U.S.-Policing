@@ -1,4 +1,4 @@
-You live in Europe and seem to have very little insight into what policing in the U.S. is like. Why do you think you have more insight than those living in the country actually being discussed? Almost half of Americans have had immediate family incarcerated:
+Almost half of Americans have had immediate family incarcerated:
 
 https://journals.sagepub.com/doi/full/10.1177/2378023119829332
 
