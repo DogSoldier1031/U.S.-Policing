@@ -43,5 +43,3 @@ Which is not at all surprising when U.S. policing was originally conceived for s
 https://amp.theatlantic.com/amp/article/406177/
 
 https://www.wuwm.com/2021-06-02/native-americans-most-likely-to-die-from-police-shootings-families-who-lost-loved-ones-weigh-in?_amp=true
-
-If there were really a significant portion of police who disagreed with this type of policing it wouldn’t still be happening after literally hundreds of years of public resistance to it. The “good” cops seem to be rare enough to be of little importance to many of us in the U.S.
